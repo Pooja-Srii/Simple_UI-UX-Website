@@ -7,9 +7,10 @@ Lets bring a change😎
 ---------------------
 
 ........................................
-Desgn to relax✌️
+Design to relax✌️
 ........................................
 
-hey guys Check out my live server here😃
+Hey guys!!!! Check out my live server here😃
 ---------------------------------------
 https://pooja-srii.github.io/Simple_UI-UX-Website/
+--------------------------------------
